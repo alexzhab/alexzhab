@@ -1,4 +1,4 @@
-— graduated from Lomonosov Moscow State University ˙✧˖°🎓 ༘⋆｡ ˚
+— graduated from Lomonosov Moscow State University
 
 — programmer in Smart Engines company
 

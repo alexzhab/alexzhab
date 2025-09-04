@@ -1,5 +1,5 @@
 — graduated from Lomonosov Moscow State University ˙✧˖°🎓 ༘⋆｡ ˚
 
-— SE programmer
+— programmer in Smart Engines company
 
 </> my IT journey here
